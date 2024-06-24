@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on new projects
 - 📫 can email me on amankeshri17061@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Loves travelling especially riding
+- ⚡ Fun fact: Loves travelling especially riding bikes
 
 <!---
 Keshri17061/Keshri17061 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
